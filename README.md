@@ -1,0 +1,1 @@
+# Scapping-from-BhavCopy-Stock-Data
